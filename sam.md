@@ -7,5 +7,3 @@
 3. list3
 
 5. lsit4
-6. list 6
-7. list 7
