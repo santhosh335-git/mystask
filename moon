@@ -1,2 +1,2 @@
-It has a very thin atmosphere called an exosphere, which is not breathable. 
-The moon has no moons.  
+After the sun, the moon is the brightest object in the sky. 
+The moon's equatorial radius is 1,738 kilometers (1,080 miles
